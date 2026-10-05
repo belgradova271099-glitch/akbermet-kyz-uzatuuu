@@ -1,1 +1,0 @@
-# akbermet-kyz-uzatuuu
